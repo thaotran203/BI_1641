@@ -1,1 +1,0 @@
-# code_group_thao_khanh_khoa
